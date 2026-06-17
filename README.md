@@ -1,0 +1,1 @@
+# Strangerfuture.github.io
